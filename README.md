@@ -1,16 +1,14 @@
-## Hi there 👋
+![Untitled5_20250213124935](https://github.com/user-attachments/assets/811ac10a-3bb5-4cbb-ad3e-b6ab72d17021)
 
-<!--
-**hum0rouz/hum0rouz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+## hihi goober gang ‪‪!! ,
+the names toby , i ' m VERY multi fandom -> 
+   
+  // u probz seen my ponys on pony town
+in the pony town we all fam !! //
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ -> hyperfixations ‪‪-+>
+         agatha all along      .       spooky month       .        mcyt        .      yakuza       -> ->
+
+// feel free to visit my straw page ♡ // 
+               (  married to my silly goober husband  ) ->  + 1 / 17 / 25 +
