@@ -11,4 +11,4 @@ in the pony town we all fam !! //
          agatha all along      .       spooky month       .        mcyt        .      yakuza       -> ->
 
 // feel free to visit my straw page ♡ // 
-               (  married to my silly goober husband  ) ->  + 1 / 17 / 25 +
+               (  married to my silly goober husband  ) 
