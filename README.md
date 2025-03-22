@@ -4,11 +4,11 @@
 ## hihi goober gang ‪‪!! ,
 the names toby , i ' m VERY multi fandom -> 🧡
   ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ  
-  //   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
+  // eng + esp *  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
 
  -> hyperfixations ‪‪-+>
-         yakuza    ㅤㅤㅤㅤㅤㅤㅤ      .     ㅤㅤㅤ
-           ㅤㅤㅤㅤㅤㅤㅤ  spooky month       ㅤㅤㅤㅤㅤ    .      ㅤㅤ      mcyt       ㅤㅤㅤ     .    ㅤㅤㅤㅤ     agatha all along      ㅤ    -> ->
+         yakuza  *ㅤ  .     ㅤㅤㅤ
+          spooky month   ㅤ    .      mcyt     ㅤ     .       agatha all along    -> ->
 
-ˋ°•*⁀➷ dni: dandys world ponies, 
+ˋ°•*⁀➷ " catch me walking with the ghost s again "
                
