@@ -2,13 +2,12 @@
 
 
 ## hihi goober gang ‪‪!! ,
-the names toby , i ' m VERY multi fandom -> 
-   
-  // u probz seen my ponys on pony town
-in the pony town we all fam !! //
+the names toby , i ' m VERY multi fandom -> 🧡
+  ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ  
+  //   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
 
  -> hyperfixations ‪‪-+>
          yakuza      .       spooky month       .        mcyt        .     agatha all along       -> ->
 
-// feel free to visit my straw page ♡ // 
+ˋ°•*⁀➷ dni: dandys world ponies, 
                
