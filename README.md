@@ -1,4 +1,5 @@
-![Untitled5_20250213124935](https://github.com/user-attachments/assets/811ac10a-3bb5-4cbb-ad3e-b6ab72d17021)
+![image](https://github.com/user-attachments/assets/dc5e3873-9154-48f4-b4fa-b055c37da660)
+
 
 
 ## hihi goober gang ‪‪!! , ⊹ ࣪ ˖
