@@ -6,9 +6,4 @@
   ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ  
   // eng + esp *  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
 
- -> hyperfixations ‪‪-+>
-         yakuza  *ㅤ  .     ㅤㅤㅤ
-          spooky month   . happy world w/ happy people / ^_^ㅤ    .      mcyt  / minecraft movie   ㅤ     .       agatha all along   .   crk -> ->
 
-ˋ°•*⁀➷ " she's  got , she's got away ! "
-               
