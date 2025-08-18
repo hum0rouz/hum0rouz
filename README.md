@@ -1,6 +1,4 @@
-<img width="527" height="527" alt="image" src="https://github.com/user-attachments/assets/90773632-9732-434a-9e20-e052db74437f" />
-
-
+<img width="360" height="360" alt="image" src="https://github.com/user-attachments/assets/45b95f34-bbf5-484f-803f-3c5576d49988" />
 
 
 ## hihi goober gang ‪‪!! , ⊹ ࣪ ˖
