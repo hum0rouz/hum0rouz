@@ -1,15 +1,16 @@
-![image](https://github.com/user-attachments/assets/dc5e3873-9154-48f4-b4fa-b055c37da660)
+<img width="527" height="527" alt="image" src="https://github.com/user-attachments/assets/90773632-9732-434a-9e20-e052db74437f" />
+
 
 
 
 ## hihi goober gang ‪‪!! , ⊹ ࣪ ˖
-♬⋆.˚ the names toby , i ' m VERY multi fandom -> 🧡
+♬⋆.˚ the names atari / toby , i ' m VERY multi fandom -> 🧡
   ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ  
   // eng + esp *  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
 
  -> hyperfixations ‪‪-+>
          yakuza  *ㅤ  .     ㅤㅤㅤ
-          spooky month   ㅤ    .      mcyt  / minecraft movie   ㅤ     .       agatha all along    -> ->
+          spooky month   ㅤ    .      mcyt  / minecraft movie   ㅤ     .       agatha all along   .   crk -> ->
 
-ˋ°•*⁀➷ " catch me walking with the ghost s again "
+ˋ°•*⁀➷ " she's  got , she's got away ! "
                
