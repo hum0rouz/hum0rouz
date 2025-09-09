@@ -10,8 +10,8 @@
 ‎ ‎ ‎ ‎ ‎ i like happy world with happy people, yakuza, agatha all along,
 the life series, regretevator, hamilton, crk, and spooky month !!!
 
-byi! i might not accept your friend requests
-im not always active playing
+byi! i might not accept your friend requests +
+im not always active playing +
 and i might be playing w/ somebody so i might not respond ‹𝟹
 
 
