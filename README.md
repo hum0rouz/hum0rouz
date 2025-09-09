@@ -1,5 +1,5 @@
 : that boy is corrupt ! could you raise him to love me maybe ? ⟢ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ────୨ৎ────
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/c1528c9d-27a6-42f8-afb3-6efd4827a5d3" />
