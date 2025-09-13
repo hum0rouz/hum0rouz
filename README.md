@@ -2,7 +2,7 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/c1528c9d-27a6-42f8-afb3-6efd4827a5d3" />
+https://static-cdn.jtvnw.net/jtv_user_pictures/ec174c13-1501-47e9-948c-84893c65221e-profile_image-300x300.png
 
 
 + tobias or atari // he / xey it // tmasc + mlm ᛝ
