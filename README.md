@@ -6,7 +6,7 @@
 + tobias or atari // he / xey it // tmasc + mlm ᛝ
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ + im very multifandom,
 ‎ ‎ ‎ ‎ ‎ i like happy world with happy people, yakuza, agatha all along,
-the life series, regretevator, hamilton, crk, and spooky month !!!
+the life series, regretevator, deltarune , crk, and spooky month !!!
 
 byi! i might not accept your friend requests +
 im not always active playing +
