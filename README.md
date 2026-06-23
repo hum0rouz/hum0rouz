@@ -10,9 +10,9 @@
 <div align="center">
 
 <details>
-<summary><b>Click here to expand the menu</b></summary>
+<summary><b>basic info abt me</b></summary>
 
-hiii
+hiii im tobias (i also go by caine! :-0 ), i use he + any pronouns. and i am tmasc + mlm !!
 
 </details>
 
