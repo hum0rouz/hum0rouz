@@ -16,7 +16,8 @@
 
 </details>
 
-</div>
+
+<div align="center">
 
 <details>
 <summary>fandoms + interests </b></summary>
