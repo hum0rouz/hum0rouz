@@ -22,7 +22,7 @@
 <details>
 <summary>fandoms + interests </b></summary>
 
-<sub>tadc, pop culture, bugs (and insects in general ilooovee creepy crawlies), agatha all along, yakuza, spooky month, harbor city, dispatch, deltarune, cookie run kingdom, regretevator, the life series, hermitcraft, ru pauls drag race, splatoon, fnaf, sonic the hedgehog, the minecraft movie.
+<sub>tadc, pop culture, bugs (and insects in general ilooovee creepy crawlies), agatha all along, yakuza, spooky month, harbor city, dispatch, deltarune, cookie run kingdom, regretevator, the life series, hermitcraft, ru pauls drag race, splatoon, fnaf, sonic the hedgehog, the minecraft movie. (i have soo many more, but this is all i can remember lol)
 </details>
 
 </div>
