@@ -7,10 +7,10 @@
 
  <p align="center"><sub>*a curse on me was broken by ur magic wand !!*
 
- <details>
+  <p align="center"<about me>
   <about me>Click to expand</about me>
 
-  <sub> This is the hidden content that appears when you click the dropdown!
+  <sub>hiii im tobias (i also go by caine!), i use he + any pronouns!
 
 </details>
 
