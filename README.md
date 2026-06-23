@@ -7,4 +7,12 @@
 
  <p align="center"><sub>*a curse on me was broken by ur magic wand !!*
 
+ <details>
+  <about me>Click to expand</about me>
+
+  <sub> This is the hidden content that appears when you click the dropdown!
+
+</details>
+
+
   
