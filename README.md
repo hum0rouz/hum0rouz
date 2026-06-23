@@ -27,6 +27,17 @@
 
 </div>
 
+<div align="center">
+
+<details>
+<summary> music time </b></summary>
+
+<sub>sabrina carpenter, cavetown, lady gaga, katseye, adela, zara larsson, lil nas x, olivia rodrigo, taylor swift, nine inch nails, joost klein, oingo boingo, sElf, chappell roan, ethan bortnick, ayehsa erotica, wifiskeleton, tyler the creator, sophie, elio mei, conan gray, big thief, doja cat, panic! at the disco, femtanyl, raye, mitski, sparkbird, tally hall, will wood, jhariah, stomach book, beabadoobee, mother mother.
+</details>
+
+</div>
+
+
 
 
 
