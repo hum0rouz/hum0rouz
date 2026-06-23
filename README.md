@@ -7,12 +7,18 @@
 
  <p align="center"><sub>*a curse on me was broken by ur magic wand !!*
 
-  <p align="center"<about me>
-  <about me>Click to expand</about me>
+<div align="center">
 
-  <sub>hiii im tobias (i also go by caine!), i use he + any pronouns!
+<details>
+<summary><b>Click here to expand the menu</b></summary>
+
+hiii
 
 </details>
+
+</div>
+
+
 
 
   
