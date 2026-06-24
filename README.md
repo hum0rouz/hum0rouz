@@ -37,12 +37,7 @@
 
 </div>
 
-your-repo/
-├── README.md
-├── nowplaying.py # Python script that fetches current track
-└── .github/
-      └── workflows/
-             └── spotify.yml
+
 
 
 
