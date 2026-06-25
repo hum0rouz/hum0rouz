@@ -57,6 +57,8 @@
 
 </details>
 
+[art fight](https://artfight.net/~fishbugg) [atabook](https://fishbug.atabook.org/) [twitter](https://x.com/majimabug)
+
 
 
 
