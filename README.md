@@ -12,7 +12,7 @@
 <details>
 <summary>abt me + byi !! </b></summary>
 
-<sub>hiii im tobias (i also go by caine! :-0 ), i use he + any pronouns. and i am tmasc + mlm !! i had adhd + aspergers , i dont rlly friend ppl unless i know them bc i can get rlly awkward around new ppl! pls dont be sexual or flirty towards me i get rlly uncomfortable okay!! i am incredibily multifandom, and i am a yumeshipper (hypersharing with mannequin mark, and selective sharing for licorice cookie and waterboy!) 
+<sub>hiii im tobias (i also go by caine! :-0 ), i use he + any pronouns. and i am tmasc + mlm !! i am 7teen! i had adhd + aspergers , i dont rlly friend ppl unless i know them bc i can get rlly awkward around new ppl! i am incredibily multifandom, and i am a yumeshipper (hypersharing with mannequin mark, and selective sharing for licorice cookie and waterboy!) 
 
 </details>
 
@@ -22,7 +22,7 @@
 <details>
 <summary>fandoms + interests </b></summary>
 
-<sub>tadc, pop culture, bugs (and insects in general ilooovee creepy crawlies), agatha all along, yakuza, spooky month, harbor city, dispatch, deltarune, cookie run kingdom, regretevator, the life series, hermitcraft, ru pauls drag race, splatoon, fnaf, sonic the hedgehog, the minecraft movie. (i have soo many more, but this is all i can remember lol)
+<sub>tadc, pop culture, bugs (and insects in general ilooovee creepy crawlies), agatha all along, yakuza, spooky month, harbor city, dispatch, deltarune, cookie run kingdom, regretevator, the life series, hermitcraft, ru pauls drag race, splatoon, fnaf, rtc, tshd, sonic the hedgehog, the minecraft movie. (i have soo many more, but this is all i can remember lol)
 </details>
 
 </div>
@@ -42,7 +42,16 @@
 <details>
 <summary>ppl id love to interact with </b></summary>
 
-<sub>tf2 fans, idk why but u guys are so cool, like all of the tf2 fans ive met on pony town are literally the coolest ppl ever
+<sub>tf2 fans, idk why but u guys are so cool, like all of the tf2 fans ive met on pony town are literally the coolest ppl ever,,,
+
+</details>
+
+<div align="center">
+
+<details>
+<summary>dni for pony town users</b></summary>
+
+<sub>[BASIC DNI obvi](https://dni-criteria.carrd.co/), dont interact if u sexualize any of the characters i kin or am dressed up as- bc most likely i kin them, dont be sexual with me point blank i will get incredibly uncomfortable, dni spawnists, dni if youre under 17, dni if youre above 23, dni if u support melanie martinez, sombr, gracie abrams, or nicki minaj, dni if youre a rebulican, dni if youre maga.
 
 </details>
 
