@@ -12,7 +12,7 @@
 <details>
 <summary>abt me + byi !! </b></summary>
 
-<sub>hiii im tobias (i also go by caine! :-0 ), i use he + any pronouns. and i am tmasc + mlm !! i had adhd + aspergers , i dont rlly friend ppl unless i know them bc i can get rlly awkward around new ppl! i am incredibily multifandom, and i am a yumeshipper (hypersharing with mannequin mark, and selective sharing for licorice cookie and waterboy!)
+<sub>hiii im tobias (i also go by caine! :-0 ), i use he + any pronouns. and i am tmasc + mlm !! i had adhd + aspergers , i dont rlly friend ppl unless i know them bc i can get rlly awkward around new ppl! i am incredibily multifandom, and i am a yumeshipper (hypersharing with mannequin mark, and selective sharing for licorice cookie and waterboy!) pls dont be sexual or flirty towards me i get rlly uncomfortable okay
 
 </details>
 
