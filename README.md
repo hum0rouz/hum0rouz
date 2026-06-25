@@ -37,6 +37,15 @@
 
 </div>
 
+<div align="center">
+
+<details>
+<summary>ppl id love to interact with </b></summary>
+
+<sub>tf2 fans, idk why but u guys are so cool, like all of the tf2 fans ive met on pony town are literally the coolest ppl ever
+
+</details>
+
 
 
 
