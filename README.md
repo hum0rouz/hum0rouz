@@ -43,7 +43,8 @@
 
 [art fight](https://artfight.net/~fishbugg) [atabook](https://fishbug.atabook.org/) [twitter](https://x.com/majimabug)
 
-
+<p align="center">...
+<p align="center">...
 
 <p align="center"> what im listening to!
   
