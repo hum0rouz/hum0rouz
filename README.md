@@ -59,6 +59,14 @@
 
 [art fight](https://artfight.net/~fishbugg) [atabook](https://fishbug.atabook.org/) [twitter](https://x.com/majimabug)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dy76xrcyeb5ok64ausmna24icu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=9e3a3a)](https://github.com/kittinan/spotify-github-profile)
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dy76xrcyeb5ok64ausmna24icu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=9e3a3a">
+  </a>
+</p>
+
 
 
 
