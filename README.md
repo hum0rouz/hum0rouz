@@ -17,5 +17,7 @@
   </a>
 </p>
 
+<p align="center">
+[atabook](https://fishbug.atabook.org/) [artfight](https://artfight.net/~fishbugg)
 
   
