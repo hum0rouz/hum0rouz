@@ -1,11 +1,7 @@
-<p align="center"><img width="498" height="280" alt="image" src="https://github.com/user-attachments/assets/85a0e23a-c046-4971-9260-acc4f425a0d7" />
+<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/dff3516c-7e83-4ab5-8755-6b732deb23af" />
 
+<img width="608" height="87" alt="image" src="https://github.com/user-attachments/assets/d80722ab-cf95-4138-9f2b-b686145c5384" />
 
-
-
-  <img width="412" height="116" alt="image" src="https://github.com/user-attachments/assets/8e2ebbe0-1852-4c5f-9e11-00d2f22e1451" />
-
- <p align="center"><sub>*a curse on me was broken by ur magic wand !!*
 
 
 <p align="center">...
