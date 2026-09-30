@@ -5,6 +5,20 @@
 <div align="center">
 
 <details>
+<summary><b>basic info + dni </b></summary>
+<br>
+
+hiii im tobias, i also go by facty currently! (2nd name changes by whatever kin i have at the moment), im 7teen, im transmasc and mlm! i have diagnosed adhd and autism! i love drawing and editing, and playing video games. im a huge pop culture fanatic, im a yumeshipper, and im also incredibly multifandom! my dni is just [basic dni](https://dni-criteria.carrd.co/) but id also like to note, if youve harmed my friends in the past, dni. if youre under 14, dni respectively. 
+
+</details>
+
+</div>
+
+
+
+<div align="center">
+
+<details>
 <summary><b>interests</b></summary>
 <br>
 
@@ -13,6 +27,20 @@ fact attack adventures, heated rivarly, spooky month, stardew valley, agatha all
 </details>
 
 </div>
+
+
+<div align="center">
+
+<details>
+<summary><b>music i like</b></summary>
+<br>
+
+malcolm todd, cavetown, katseye, adela, xlov, taylor swift, beabadoobee, lady gaga, nine inch nails, ariana grande.
+
+</details>
+
+</div>
+
 
 
 
