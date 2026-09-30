@@ -2,7 +2,7 @@
 
 <p align="center"><img width="608" height="87" alt="image" src="https://github.com/user-attachments/assets/d6c4f95f-897c-4786-a2f2-da814ce95d51" />
 
-<details>
+<p align="center"><details>
 <summary><b>Click here to expand the menu</b></summary>
 
 This is the hidden content inside the drop-down menu. 
