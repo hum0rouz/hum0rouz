@@ -2,13 +2,18 @@
 
 <p align="center"><img width="608" height="87" alt="image" src="https://github.com/user-attachments/assets/d6c4f95f-897c-4786-a2f2-da814ce95d51" />
 
-<details>
-<p align="center"><summary><b>Click here to expand the menu</b></summary>
+<div align="center">
 
-This is the hidden content inside the drop-down menu. 
-You can use standard **Markdown** formatting here.
+<details>
+<summary><b>interests</b></summary>
+<br>
+
+fact attack adventures, heated rivarly, spooky month, stardew valley, agatha all along, tadc, alien stage, tshd.
 
 </details>
+
+</div>
+
 
 
 <p align="center">...
