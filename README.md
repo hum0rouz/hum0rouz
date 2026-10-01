@@ -8,7 +8,7 @@
 <summary><b>basic info + dni </b></summary>
 <br>
 
-hiii im tobias, i also go by facty currently! (2nd name changes by whatever kin i have at the moment), im 7teen, im transmasc and mlm! i have diagnosed adhd and autism! i love drawing and editing, and playing video games. im a huge pop culture fanatic, im a yumeshipper, and im also incredibly multifandom! my dni is just [basic dni](https://dni-criteria.carrd.co/) but id also like to note, if youve harmed my friends in the past, dni. if youre under 14, dni respectively. 
+hiii im tobias, i also go by facty currently! (2nd name changes by whatever kin i have at the moment), u can use any pronouns for me! but its mostly preferred if u use masc terms + pronouns for me! im 7teen, im transmasc and mlm! i have diagnosed adhd and autism! i love drawing and editing, and playing video games. im a huge pop culture fanatic, im a yumeshipper, and im also incredibly multifandom! my dni is just [basic dni](https://dni-criteria.carrd.co/) but id also like to note, if youve harmed my friends in the past, dni. if youre under 14, dni respectively. 
 
 </details>
 
