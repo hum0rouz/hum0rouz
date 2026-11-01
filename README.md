@@ -35,7 +35,7 @@ fact attack adventures, heated rivarly, spooky month, stardew valley, agatha all
 <summary><b>music i like</b></summary>
 <br>
 
-malcolm todd, cavetown, katseye, adela, xlov, taylor swift, beabadoobee, lady gaga, nine inch nails, ariana grande.
+malcolm todd, cavetown, katseye, adela, xlov, oingo boingo, beabadoobee, lady gaga, nine inch nails, ariana grande.
 
 </details>
 
