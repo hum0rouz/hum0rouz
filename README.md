@@ -22,7 +22,7 @@ hiii im tobias, i also go by facty currently! (2nd name changes by whatever kin 
 <summary><b>interests</b></summary>
 <br>
 
-fact attack adventures, heated rivarly, spooky month, stardew valley, agatha all along, tadc, alien stage, tshd.
+fact attack adventures, heated rivarly, spooky month, mcyt (hermitcraft, life series, etc.) stardew valley, agatha all along, tadc, alien stage, tshd.
 
 </details>
 
